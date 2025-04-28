@@ -1,1 +1,1 @@
-# profile-Moro
+# profile.Moro
